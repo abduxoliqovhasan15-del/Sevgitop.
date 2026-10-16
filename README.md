@@ -1,0 +1,2 @@
+# Sevgitop.
+Tanishuvlar ilovasi
